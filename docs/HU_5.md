@@ -1,0 +1,2 @@
+# HU_5 Pablo y Juan, 26 y 28 años, viven Salobreña
+Somos dos hermanos y pescamos a menudo. Pescamos para comer y somos muy interesados de sacar algo para comer. Conocemos casi todos playas de la zona y sabemos que cada día diferente. Posibilidad sacar pescado en diferentes playas depende donde esta concentrados peses hoy. Normalmente a la hora de pescar pasamos por varios playas y quedamos donde se pesca mejor. Nos interesarría mensajes o avisos que por ejemplo hoy se pesca fenomenal en este playa y nos vamos alli

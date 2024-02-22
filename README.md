@@ -1,2 +1,2 @@
-## Problema
-Soy un pescador novel y pesco por gusto. Quiero pescar, pero no sé dónde hacerlo.
+# Problema
+Soy un pescador novel y pesco por gusto. Los primeros sitios de pesca los encontré en internet. La verdad que no  hay mucha informacion sobre esto y por eso empecé a preguntarle a otros pescadores sobre los sitios de pesca que conocen, el tipo de cebo que  usan y aconsejan para esos sitios. La información la estoy apuntando a papel y pienso sobre cómo podría ser más comoddo y también cómo compartirla con los que les interese.
