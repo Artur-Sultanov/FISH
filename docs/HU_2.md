@@ -1,0 +1,1 @@
+Soy un pescador novel. Vivo en la playa hace poco y no tengo muchos amigos. Pesco cuando me apetezca y mayoria del tiempo solo. Normalmente invito conocidos pero no quero ser pesado y escribir a todos cada vez
