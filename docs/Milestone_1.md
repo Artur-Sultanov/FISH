@@ -1,2 +1,2 @@
 # Milestone 1.
-Desarrollar un algoritmo para verificar los lugares cercanos de ubicacion indicada
+Desarrollar Producto Mínimo Viable segun modelo en milestone_0
