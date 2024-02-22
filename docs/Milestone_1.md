@@ -1,2 +1,2 @@
 # Milestone 1.
-Desarrollar Producto Mínimo Viable segun modelo en milestone_0
+Desarrollar Producto Mínimo Viable que llevan a cabo las funciones necesarias que usen el modelo desarrollado en milestone_0
